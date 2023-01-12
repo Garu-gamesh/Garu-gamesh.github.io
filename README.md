@@ -2,7 +2,8 @@
 
 ## **what if**             
 
-> Paano kung bumalik ang greatest what if mo? will you say hi? No, Just ignore it, but you cant. What if your greatest what if is right in front of you? Ngayon kaya, ano gagawin mo?
+### Paano kung bumalik ang greatest what if mo? will you say hi? No, Just ignore it, but you cant. What if your greatest what if is right in front of you? Ngayon kaya, ano gagawin mo?
+
 ---
 ```
 
@@ -18,4 +19,13 @@
 4. Riot Games (gaemer banoramt)
 5. Youtube (dae man ako nagpopost)
 6. Hoyoverse (me when ar 58 tapos walang good emblem set)
-
+### mga sites na hindi Garugamesh name ko
+1. Reddit 
+2. Facebook duh
+3. Insta (banned 😞)
+4. Twitter (banned rin 😔)
+5. Spotify (me when username ko ay iasgjodfghfnhnj)
+- [x] Gumawa ng github account
+- [ ] wala naman
+- [ ] iloveyou po
+- [ ] andi may utang ka sako
