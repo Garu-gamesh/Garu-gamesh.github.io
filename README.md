@@ -1,16 +1,8 @@
 ### Hi there 👋
 
-<!--
-**Garu-gamesh/Garu-gamesh** is a ✨ _special_ ✨ repository, special katulad mo 
+## **wow sheesh **             
 
-- 😄 Pronouns: hee/hee
-- ⚡ Fun fact: nakasagasa na ako ng bata gamit bike ko 😔
+> Paano kung bumalik ang greatest what if mo? will you say hi? No, Just ignore it, but you cant. What if your greatest what if is right in front of you? Ngayon kaya, ano gagawin mo?
 
 
 
-
-
-
-
-
-joke yan gabos
