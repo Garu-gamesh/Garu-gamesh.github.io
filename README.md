@@ -33,3 +33,5 @@
 - [ ] wala naman
 - [ ] iloveyou po
 - [ ] andi may utang ka sako
+---
+### **di ko pa nauunlock discord acc ko dito sa school computer so di pa to kumpleto**
