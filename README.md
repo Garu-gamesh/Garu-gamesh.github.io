@@ -27,6 +27,8 @@
 3. Insta (banned 😞)
 4. Twitter (banned rin 😔)
 5. Spotify (me when username ko ay iasgjodfghfnhnj)
+
+### Mga gawain
 - [x] Gumawa ng github account
 - [ ] wala naman
 - [ ] iloveyou po
