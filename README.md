@@ -1,8 +1,21 @@
-### Hi there 👋
+### Hi po
 
-## **wow sheesh **             
+## **what if**             
 
 > Paano kung bumalik ang greatest what if mo? will you say hi? No, Just ignore it, but you cant. What if your greatest what if is right in front of you? Ngayon kaya, ano gagawin mo?
+---
+```
 
+  Juan Marcos P. Bordado II
+  14
+  yan lang :(
 
+```
+### Basta Garugamesh ang name ko sa:
+1. Discord (dae nindo ini isearch)
+2. Steam (me when apec legand)
+3. Battle.net (me when oberwatc)
+4. Riot Games (gaemer banoramt)
+5. Youtube (dae man ako nagpopost)
+6. Hoyoverse (me when ar 58 tapos walang good emblem set)
 
