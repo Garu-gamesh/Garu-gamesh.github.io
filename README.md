@@ -32,6 +32,13 @@
 - [x] Gumawa ng github account
 - [ ] wala naman
 - [ ] iloveyou po
+- [ ] Di mo alam dahil sayo, akoy di nakakain
+- [ ] Di rin makatulog buhat ng iyong lokohin
+- [ ] Kung akoy sana'y muling iibig 
+- [ ] SANA DI MAGING KATULAD MO
+- [x] TULAD MO NA MAY PUSONG BATOOOOOOOOOO
+
+
 ---
 
 
