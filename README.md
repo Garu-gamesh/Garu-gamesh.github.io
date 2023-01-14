@@ -6,14 +6,6 @@
 
 ---
 
-
-```
-
-  Juan Marcos P. Bordado II
-  14
-  yan lang :(
-
-```
 ### Basta Garugamesh ang name ko sa:
 1. 	Garugamesh#5897-DISCORD (dae nindo ini isearch)
 2. [Steam](https://steamcommunity.com/profiles/76561199176010233/) (me when apec legand)
