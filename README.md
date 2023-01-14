@@ -10,7 +10,7 @@
 1. 	[Discord](http://discordapp.com/users/715116142774976553) (haha wow sheesh dm nga kayo uwu)
 2. [Steam](https://steamcommunity.com/profiles/76561199176010233/) (me when apec legand)
 3. Garugamesh#3567-BATTLE.NET (me when doompist)
-4. Riot Games (gaemer banoramt)
+4. Riot Games (Garugamesh #aaaaa)
 5. Youtube (dae man ako nagpopost)
 6. [Hoyoverse](https://www.hoyolab.com/accountCenter/postList?id=131028942)(me when ar 58 tapos walang good emblem set)
 7. [Roloblocs](https://www.roblox.com/users/2724248719/profile) (wala akong masasabi)
