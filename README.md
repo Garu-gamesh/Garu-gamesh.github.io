@@ -5,9 +5,6 @@
 ## **Paano kung bumalik ang greatest what if mo? will you say hi? No, Just ignore it, but you cant. What if your greatest what if is right in front of you? Ngayon kaya, ano gagawin mo?**
 
 
-<iframe width="100%" height="540" src="https://www.youtube.com/embed/SDk1RA4g8CA?list=RDGMEMXdNDEg4wQ96My0DhjI-cIg" title="Guitar, Loneliness and Blue Planet" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
-
-
 ### **LINKS AND NAMES**
 ## Basta Garugamesh ang name ko sa:
 1. 	[Discord](http://discordapp.com/users/715116142774976553) (haha wow sheesh dm nga kayo uwu)
@@ -24,14 +21,6 @@
 3. Insta (banned 😞)
 4. Twitter (banned rin 😔)
 5. Spotify (me when username ko ay iasgjodfghfnhnj)
-
-
-### images and clips
-
-==guys yoimiya ko f2p flex==
-
-![guys oh ang ganda ng yoimiya ko my beloved](https://user-images.githubusercontent.com/122452365/212473943-69315e04-5f0b-4425-b80d-a9e20996bbec.png)
-
 
 
 me when mosic
