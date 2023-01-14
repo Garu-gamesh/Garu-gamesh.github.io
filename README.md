@@ -1,11 +1,8 @@
-### Hi po
+# Hi po
 
-## **what if**             
+## Paano kung bumalik ang greatest what if mo? will you say hi? No, Just ignore it, but you cant. What if your greatest what if is right in front of you? Ngayon kaya, ano gagawin mo?
 
-### Paano kung bumalik ang greatest what if mo? will you say hi? No, Just ignore it, but you cant. What if your greatest what if is right in front of you? Ngayon kaya, ano gagawin mo?
-
----
-
+### **LINKS AND NAMES**
 ### Basta Garugamesh ang name ko sa:
 1. 	[Discord](http://discordapp.com/users/715116142774976553) (haha wow sheesh dm nga kayo uwu)
 2. [Steam](https://steamcommunity.com/profiles/76561199176010233/) (me when apec legand)
