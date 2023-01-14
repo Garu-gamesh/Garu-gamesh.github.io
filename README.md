@@ -28,7 +28,7 @@ me when mosic
 
 ### Clips in diff games
 
-<iframe width="100%" height="100#" src="https://www.youtube.com/embed/hVl5W7v9H40" title="Hanzo clip #1" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+<iframe width="100%" height="100%" src="https://www.youtube.com/embed/hVl5W7v9H40" title="Hanzo clip #1" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 ---
 
 
