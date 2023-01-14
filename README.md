@@ -15,12 +15,13 @@
 
 ```
 ### Basta Garugamesh ang name ko sa:
-1. Discord (dae nindo ini isearch)
-2. Steam (me when apec legand)
-3. Battle.net (me when oberwatc)
+1. 	Garugamesh#5897-DISCORD (dae nindo ini isearch)
+2. [Steam](https://steamcommunity.com/profiles/76561199176010233/) (me when apec legand)
+3. Garugamesh#3567-BATTLE.NET (me when oberwatc)
 4. Riot Games (gaemer banoramt)
 5. Youtube (dae man ako nagpopost)
 6. Hoyoverse (me when ar 58 tapos walang good emblem set)
+
 ### mga sites na hindi Garugamesh name ko
 1. Reddit 
 2. Facebook duh
@@ -41,6 +42,3 @@
 
 ---
 
-
-nyo
-gings
