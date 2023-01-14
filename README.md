@@ -29,6 +29,9 @@
 - [ ] SANA DI MAGING KATULAD MO
 - [x] TULAD MO NA MAY PUSONG BATOOOOOOOOOO
 
-
+=images and clips=
+![guys oh ang ganda ng yyoimiya ko my beloved]((https://user-images.githubusercontent.com/122452365/212473943-69315e04-5f0b-4425-b80d-a9e20996bbec.png)
+ wow sheesh hes the cover daw
+https://user-images.githubusercontent.com/122452365/212474103-866f4fa0-b3b2-4b8d-a2e3-843d2d49c0ba.mp4
 ---
 
