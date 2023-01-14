@@ -30,9 +30,8 @@
 - [x] TULAD MO NA MAY PUSONG BATOOOOOOOOOO
 
 =images and clips=
-![guys oh ang ganda ng yoimiya ko my beloved]((https://user-images.githubusercontent.com/122452365/212473943-69315e04-5f0b-4425-b80d-a9e20996bbec.png)
+![guys oh ang ganda ng yoimiya ko my beloved](https://user-images.githubusercontent.com/122452365/212473943-69315e04-5f0b-4425-b80d-a9e20996bbec.png)
 
-wow sheesh hes the cover daw
-https://user-images.githubusercontent.com/122452365/212474213-44f75a35-294f-4690-9e9d-c5b4450593c9.mp4
+![wow sheesh hes the cover daw](https://user-images.githubusercontent.com/122452365/212474213-44f75a35-294f-4690-9e9d-c5b4450593c9.mp4)
 ---
 
