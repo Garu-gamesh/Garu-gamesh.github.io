@@ -24,21 +24,7 @@
 ![guys oh ang ganda ng yoimiya ko my beloved](https://user-images.githubusercontent.com/122452365/212473943-69315e04-5f0b-4425-b80d-a9e20996bbec.png)
 
 
-
-[test](https://user-images.githubusercontent.com/122452365/212474213-44f75a35-294f-4690-9e9d-c5b4450593c9.mp4)
-
-
-
-https://user-images.githubusercontent.com/122452365/212474528-f490b627-5e96-4a61-bfcf-c3fe532186fa.mp4
-
-
-
-https://user-images.githubusercontent.com/122452365/212474677-aed80d98-98ba-4741-b53a-3fa6b5cf39ec.mp4
-
-
-
-https://user-images.githubusercontent.com/122452365/212474807-05b115bb-52da-4310-8917-8755fae5664e.mp4
-
+https://user-images.githubusercontent.com/122452365/212475611-456082cf-9005-4433-9f5d-9b5fd7202da3.mp4
 
 
 ---
