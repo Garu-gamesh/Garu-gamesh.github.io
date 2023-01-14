@@ -32,7 +32,7 @@
 ![guys oh ang ganda ng yoimiya ko my beloved](https://user-images.githubusercontent.com/122452365/212473943-69315e04-5f0b-4425-b80d-a9e20996bbec.png)
 
 
-(https://user-images.githubusercontent.com/122452365/212475611-456082cf-9005-4433-9f5d-9b5fd7202da3.mp4)
+https://user-images.githubusercontent.com/122452365/212475611-456082cf-9005-4433-9f5d-9b5fd7202da3.mp4
 
 
 ---
