@@ -28,9 +28,11 @@ me when mosic
 
 ### **Clips in diff games**
 
-<iframe width="100%" height="480" src="https://www.youtube.com/embed/hVl5W7v9H40" title="Hanzo clip #1" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+<iframe width="100%" height="460" src="https://www.youtube.com/embed/hVl5W7v9H40" title="Hanzo clip #1" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
-<iframe width="100%" height="480" src="https://www.youtube.com/embed/W5Dr-7tfkqk" title="Apex clep" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+<iframe width="100%" height="460" src="https://www.youtube.com/embed/W5Dr-7tfkqk" title="Apex clep" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+<iframe width="100%" height="460" src="https://www.youtube.com/embed/mjMTkMgE7Fo" title="Bronze moments" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 ---
 
 
