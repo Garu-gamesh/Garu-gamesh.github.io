@@ -27,14 +27,21 @@ me when mosic
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/playlist/1VOGF4RbgwrpFVMuLE7Vpf?utm_source=generator" width="100%" height="380" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
 ### **Clips in diff games**
-
+---
+wow fr sheesh
 <iframe width="100%" height="360" src="https://www.youtube.com/embed/hVl5W7v9H40" title="Hanzo clip #1" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
-
+---
+wow apex 
 <iframe width="100%" height="360" src="https://www.youtube.com/embed/W5Dr-7tfkqk" title="Apex clep" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
-
+---
+wow 6k sa iron lobby
 <iframe width="100%" height="360" src="https://www.youtube.com/embed/mjMTkMgE7Fo" title="Bronze moments" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
-
+---
+sorry sa tawa
 <iframe width="100%" height="360" src="https://www.youtube.com/embed/JsqZE-t4Htw" title="Masama akong tao" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+---
+wow sheesh krazy outplay
+<iframe width="100%" height="360" src="https://www.youtube.com/embed/1q9mAgeBvsQ" title="me when dva" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 ---
 
 
