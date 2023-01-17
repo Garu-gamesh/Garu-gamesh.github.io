@@ -54,4 +54,5 @@ wow sheesh krazy outplay
 
 amen
 
+# note, i dont encourage this type of behavior as shown in the video, pinapakita ko lang yung haha lmao christian momints 
 
