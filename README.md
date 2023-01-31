@@ -25,6 +25,10 @@
 
 me when mosic
 
+### GUYS NAWARA GABOS KONG FILES SA LAPTOP KO NAWARA MAN SPOTIFY ACC KO TA GARO KAPAY SO INI NALANG
+
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/playlist/1uyq2slUdxbkFMp7BabYij?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+
 ### **Clips in diff games**
 ---
 wow fr sheesh
